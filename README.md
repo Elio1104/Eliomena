@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Eliomena
+- 👋 Hi, I’m @Elio
 - 👀 I’m interested in AI, video games and cyber security
 - 🌱 I’m currently learning coding at s19 !
 - 💞️ Big Geek (League of Legends) 
